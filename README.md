@@ -1,1 +1,1 @@
-https://github.com/shiyanova/slozhno-sosredotochitsya-ads
+https://github.com/shiyanova/slozhno-sosredotochitsya-ad
